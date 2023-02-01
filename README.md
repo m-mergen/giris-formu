@@ -1,0 +1,1 @@
+# giri-formu-olu-turma
